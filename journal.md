@@ -5,3 +5,4 @@ This is an example entry.
 # September 4, 2024
 The sphero bolt has a speed sensor, velocity, and accelerometer.
 The accelerometer helps measures acceleration forces of the robot.                                                                             
+# October 4, 2024
