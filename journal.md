@@ -15,3 +15,12 @@ Computer science helps with the election by giving people who have never voted p
 Its important to protect your personal information online so random people dont try to impersonate you online. You can make sure by making your account private. No, but i would make sure nothing important is showing on the photo. By not sharing nothing improtant and having media private.
 # November 21, 2024
 Technology makes food more affordable and accessible by improving farming, streamlining distribution, and enabling online shopping. however, it can harm the environment, create supply cgain risks, and exclude those without digital access. balancing these benefits and risks is essential.
+# December 02, 2024
+While AI offers significant benefits, it also raises concerns abouth ethics, privacy, and dependence on technology.
+AI Excites me because it boosts creativity, solves problems, and makes life more efficient.
+# December 09, 2024
+Brain rot means like ur being childish, i had a positive impact on my mental well being with social media.
+those words dont really mean to much to my experience with technology.
+Sometimes is possible but its hard because just say anything is brain rot.
+# December 16, 2024
+Yes i am, i wanna go play with my friends and spend time with my family.
