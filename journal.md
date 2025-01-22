@@ -24,3 +24,6 @@ those words dont really mean to much to my experience with technology.
 Sometimes is possible but its hard because just say anything is brain rot.
 # December 16, 2024
 Yes i am, i wanna go play with my friends and spend time with my family.
+# January 13, 2025
+
+# January 22, 2025
