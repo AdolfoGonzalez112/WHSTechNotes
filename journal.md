@@ -24,6 +24,9 @@ those words dont really mean to much to my experience with technology.
 Sometimes is possible but its hard because just say anything is brain rot.
 # December 16, 2024
 Yes i am, i wanna go play with my friends and spend time with my family.
+# January 08, 2025
+I liked the coding games, I would like to play more coding games.
 # January 13, 2025
-
+I dont think its a bad thing rn but it can be in the future,enhance them rn but i feel like later on it will limit them, start learning about it at school to be prepared for the future.
 # January 22, 2025
+Government rules protect users but can bueden companies, Tiktok can boost trust with transparency and local data storage.
