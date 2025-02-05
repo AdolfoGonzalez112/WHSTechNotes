@@ -30,3 +30,5 @@ I liked the coding games, I would like to play more coding games.
 I dont think its a bad thing rn but it can be in the future,enhance them rn but i feel like later on it will limit them, start learning about it at school to be prepared for the future.
 # January 22, 2025
 Government rules protect users but can bueden companies, Tiktok can boost trust with transparency and local data storage.
+# February 03, 2025
+Computer algorithms help by send alerts if another aircraft is near and help you know what direction to go. Yes hacking and other things could put the aircrafts and the people in danger.
