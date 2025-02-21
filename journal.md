@@ -42,3 +42,5 @@ Computer algorithms help by send alerts if another aircraft is near and help you
 # February 11, 2025
 The application would provide real time player performance tracking predictive play calling, and an interactive dashboard with key metrics like speed , fatigue, and efficiency. Instant insights on player strengths and weaknesses would help coaches make quick, strategic decisions.
 Data would be stored using SQL databases for historical stats and dictionaries for fast real time access. Machine learning models would analyze trends, predict fatigue, and suggest substitutions. Visuals like heatmaps, line coaches optimize plays and gain a competitive edge.
+# February 18, 2025
+I learned how the phoenix suns have never won a nba championchip.
