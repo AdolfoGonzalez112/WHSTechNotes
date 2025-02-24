@@ -44,3 +44,5 @@ The application would provide real time player performance tracking predictive p
 Data would be stored using SQL databases for historical stats and dictionaries for fast real time access. Machine learning models would analyze trends, predict fatigue, and suggest substitutions. Visuals like heatmaps, line coaches optimize plays and gain a competitive edge.
 # February 18, 2025
 I learned how the phoenix suns have never won a nba championchip.
+# February 24, 2025
+Technology can help by translating and educating older people about the new words young people be using.
