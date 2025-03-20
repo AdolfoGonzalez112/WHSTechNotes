@@ -48,3 +48,6 @@ I learned how the phoenix suns have never won a nba championchip.
 Technology can help by translating and educating older people about the new words young people be using.
 # March 3, 2025
 I wasnt really paying attention to the class while the sub was here, But she seemed chill she wasnt getting mad or anything.
+# March 20, 2025
+I used technology to play video games. I also used it to watch videos or shows. I used it to put a alarm to wake up in the morning.
+Technology helped me when i was bored. Playing video games connects to this class in the ways of having to do the right move/code or else the results will not be right. It helped me connect with my friends.
