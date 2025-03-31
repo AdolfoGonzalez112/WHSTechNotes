@@ -53,3 +53,5 @@ I used technology to play video games. I also used it to watch videos or shows. 
 Technology helped me when i was bored. Playing video games connects to this class in the ways of having to do the right move/code or else the results will not be right. It helped me connect with my friends.
 # March 24, 2025
 No because people are just trying to guess what teams win. AOnly a little bit because people dont watch it on its main provider.
+# March 31, 2025
+1: Im feeling good 2. Tests 3. Talk to people about my situation 4. Pass al my classes, by wanting to pass 10th grade 5. my parents because theyre family
