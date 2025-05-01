@@ -57,3 +57,7 @@ No because people are just trying to guess what teams win. AOnly a little bit be
 1: Im feeling good 2. Tests 3. Talk to people about my situation 4. Pass al my classes, by wanting to pass 10th grade 5. my parents because theyre family
 # April 4, 2025
 AI can help me study for the STAAR by giving practice questions and explaining things i dont understand. It can also help me stay organized and focused.The best part of an AI tutor is that it can explain things clearly and as many times as i need. I would use it because it would make studying easier and less stressful.
+# April 14, 2025
+Banning cell phones and social media in schools can help reduce distractions and bullying, which may improve focus and learning. However, it might also limit students’ ability to communicate in emergencies or use helpful apps for schoolwork.
+
+If my school had these restrictions, I’d understand the purpose but hope for a balanced approach. Phones could be allowed during breaks, so students still have some freedom while staying focused in class.
